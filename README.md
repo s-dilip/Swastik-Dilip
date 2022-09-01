@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @s-Dilip
+- 👋 Hi, I’m @s-dilip
 
 
 <!---
